@@ -1,0 +1,2 @@
+# WarriorKamiSkid for everyone
+ 
